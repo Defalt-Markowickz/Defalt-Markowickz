@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **Defalt_Markowickz@proton.me**
 
-![https://i.pinimg.com/originals/fb/a2/70/fba270d63cac5790cc8a196b72321034.gif]
+![https://i.pinimg.com/originals/fb/a2/70/fba270d63cac5790cc8a196b72321034.gif]()
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
